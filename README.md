@@ -1,0 +1,3 @@
+- 👋 Hi, I’m cheesenoob
+- 📫 You can reach me with discord @cheesenoob
+- 👍 Show some support on YouTube | https://www.youtube.com/channel/UC8r0yik6DenBEWw5Jl0meBQ
