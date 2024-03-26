@@ -1,3 +1,3 @@
 - 👋 Hi, I’m cheesenoob
 - 📫 You can reach me with discord @cheesenoob
-- 👍 Show some support on YouTube | https://www.youtube.com/channel/UC8r0yik6DenBEWw5Jl0meBQ
+- 👍 I will find a way to unblock GD 1.20 on school chromebook
